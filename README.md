@@ -1,2 +1,2 @@
 # Cold
-Kobe
+Kobe Bryant
